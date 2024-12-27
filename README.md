@@ -1,0 +1,1 @@
+# ClearTrend-Insights
